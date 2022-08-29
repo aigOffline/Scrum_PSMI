@@ -1,2 +1,3 @@
 
-![minimalism-art-notebook-8](file:///Users/aigerimmadakimova/Downloads/Professional%20Scrum%20Master%20I.pdf)
+
+[Professional Scrum Master I.pdf](https://github.com/aigOffline/Scrum_PSMI/files/9448234/Professional.Scrum.Master.I.pdf)
