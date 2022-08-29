@@ -1,1 +1,1 @@
-# Scrum_PSMI[Professional Scrum Master I.pdf](https://github.com/aigOffline/Scrum_PSMI/files/9448173/Professional.Scrum.Master.I.pdf)
+![alt text](file:///Users/aigerimmadakimova/Downloads/Professional%20Scrum%20Master%20I.pdf)
